@@ -1,1 +1,1 @@
-firePapayabaidu.comfirePapaya
+President Donald Trump lashed out at The New York Times on Truth Social, labeling its recent reporting on the Iran conflict as "treasonous." The dispute stems from an NYT analysis suggesting that Iran views its survival amid U.S. and Israeli strikes as a strategic victory. Trump accused the "corrupt and failing" newspaper of using fabricated facts and vowed to add the coverage to his multi-billion-dollar lawsuit against the publication.Vivas@*Namedalipassoyer.ccVivas@*Name
